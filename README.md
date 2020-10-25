@@ -1,0 +1,1 @@
+# Dell-XPS-9570-4k-Big-Sur
